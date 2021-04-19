@@ -1,7 +1,7 @@
 # custom-cross-cursor
-Nice cross cursor for you!
+## Nice cross cursor for you!
 
-Free youtuber skins here:
+## Free youtuber skins here:
 
 Stickers: 
 
