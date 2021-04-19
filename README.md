@@ -11,6 +11,8 @@ https://blocktanks.net/krypton​
 
 https://blocktanks.net/warrior​
 
+![alt text](https://blocktanks.io/assets/items/sticker/321.png)
+
 https://blocktanks.net/o9​
 
 https://blocktanks.net/dapl3b​
