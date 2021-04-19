@@ -1,4 +1,4 @@
-# custom-cross-cursor
+# BlockTanks.IO Additional
 ## Nice cross cursor for you!
 
 ## Free youtuber skins here:
