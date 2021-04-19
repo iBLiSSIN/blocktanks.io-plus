@@ -7,6 +7,8 @@ Stickers:
 
 https://blocktanks.net/krypton​
 
+![alt text](https://blocktanks.io/assets/items/sticker/200112.png)![alt text](https://blocktanks.io/assets/items/explosion/200111/0.png)
+
 https://blocktanks.net/warrior​
 
 https://blocktanks.net/o9​
