@@ -27,7 +27,7 @@ https://blocktanks.net/ihasyou​
 
 https://blocktanks.net/ihavelocity​
 
-![alt text](https://blocktanks.io/assets/items/arm/200104.png) [INSTALL](https://blocktanks.net/sv)
+https://blocktanks.net/sv
 
 https://blocktanks.net/thenicebob​
 
